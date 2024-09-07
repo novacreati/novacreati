@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @novacreati !!
+- 👀 I’m interested in ... cats, anime, my gf, games, art :3
+- 🌱 I’m currently learning ... n/a
+- 💞️ I’m looking to collaborate on ... just need help since idk coding
+- 📫 How to reach me ... twt (same user)
+- 😄 Pronouns: ... they/she
+- ⚡ Fun fact: ... umm silly
